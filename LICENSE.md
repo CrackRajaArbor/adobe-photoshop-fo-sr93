@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Adobe Photoshop for macOS template with secure Adobe Photoshop for macOS Template | cloud sync + auto-retouch. Featuring cloud sync and auto-retouch, it's the
 
 
 
